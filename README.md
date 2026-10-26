@@ -35,3 +35,8 @@ Music I love: Amigo the devil, The bridge city sinners, Harley Poe, Chevelle, Sy
 I OWN TONS OF ANIMALS!! I have goats, cats, dogs, ducks, chickens, and blue death feigning beetles!!!
 
 i do have AUDHD and can sometime possible come off as rude or not fully understand something as so apologies in advance if i ever do that if so please tell me ^^
+
+photo of my oc Valerie Meadows and Dani Rojas from Far Cry 6 below made by Aokaforever on TikTok  
+<img width="1738" height="1689" alt="image" src="https://github.com/user-attachments/assets/523a6435-5e5f-4773-bbc2-f28201dbc8a3" />
+
+
