@@ -28,7 +28,7 @@ Gender: DEMIGIRL
 
 age: 17 ill be turning 18 on dec 11th
 
-Stuff I luv: FARCRY (mainly 6), Resident Evil, Umamusume, Warrior cats, Red dead Redemption, Hamilton, ATLA, The Crow (Rip Brandon Lee), Starwars, Art, My ocs and tons of other things
+Stuff I luv: FARCRY (mainly 6), Resident Evil, Umamusume, Arcane, Warrior cats, Red dead Redemption, Hamilton, ATLA, The Crow (Rip Brandon Lee), Starwars, Art, My ocs and tons of other things
 
 Music I love: Amigo the devil, The bridge city sinners, Harley Poe, Chevelle, System of a Down, Murder by death, Adrienne Lenker, Big thief, Muse, RadioHead, The front bottoms, McCafferty, Mitski, Yaelokre, Alestorm, Lana del Rey, A perfect circle, Tool, Puscifer, Alex g, Raury, American Murder song, Modest Mouse, Chiodos, isles and glaciers, my chemical romance, Pierce the veil, Panic! At the disco, Dance Gavin dance, and just a bunch more (I’m like a massive fan of music lol)
 
